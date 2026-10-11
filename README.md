@@ -26,6 +26,6 @@ Speed in learning and development
 Creativity without limits
 The power of technology and imagination combined
 📫 Connect With Me
-Telegram:@kelvinmart
+Telegram:@ghostpayrol
 Email: eddiebauermurphy@gmail.com
-Telegram link:t.me/kelvinmart
+Telegram link:t.me/ghostpayrol
